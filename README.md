@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gigglesheeetpi
-- 👀 I’m interested in ...
+- 👀 I’m interested in nothing special, but friends
 - 🌱 I’m currently learning ... nothing
 - 💞️ I’m looking to collaborate on everyone ;)
 - 😄 Pronouns: you X)
